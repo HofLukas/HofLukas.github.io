@@ -1,2 +1,2 @@
 # HofLukas.github.io
-neco
+cool stranka
